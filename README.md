@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
   -  [X](https://x.com/gmys_amtkzT)
   - [LinkedIn](https://www.linkedin.com/feed/)
-- ⚡ Fun fact: ...Game, Horce racing, Programming, Plaing Piano, Listening music(pops, classic, jazz)
+- ⚡ Fun fact: ...Game🎮, Horce racing🏇, Programming💻, Playing Piano, Listening music(pops, classic, jazz)
 - ❗ **Notification** ... I have ASD as a pre-existing condition and is undergoing treatment. I would appreciate if you could take this into consideration.🙇
