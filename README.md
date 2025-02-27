@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...QA, Developer, SE
 - 💬 Ask me about ...
   -  [X](https://x.com/gmys_amtkzT)
-  - [LinkedIn](https://www.linkedin.com/feed/)
+  - [LinkedIn](www.linkedin.com/in/akiyasu-sakagami-71b3ba353)
 - ⚡ Fun fact: ...Game🎮, Horce racing🏇, Programming💻, Playing Piano, Listening music(pops, classic, jazz)
 - ❗ **Notification** ... I have ASD as a pre-existing condition and is undergoing treatment. I would appreciate if you could take this into consideration.🙇
